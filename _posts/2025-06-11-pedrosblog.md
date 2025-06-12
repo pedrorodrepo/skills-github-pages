@@ -13,4 +13,3 @@ Learn to rest, not quit. Burnout is real—give yourself grace and space when ne
 If you’re on a path that feels slow or uncertain, trust that growth is happening. Stay consistent, stay curious, and keep going.
 
 Thanks for reading—and feel free to share your own experiences in the comments!
-------
